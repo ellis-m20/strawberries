@@ -16,3 +16,4 @@ i am hungry and i want more white rabbit. chloe said no because she has no more 
 5. do a face mask
 6. clean my room
 
+[image of ron](IMG_0318.JPG)
